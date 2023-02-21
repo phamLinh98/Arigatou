@@ -1,0 +1,2 @@
+# Arigatou
+linhthusinh_code
